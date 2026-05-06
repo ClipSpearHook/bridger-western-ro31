@@ -1,4 +1,4 @@
-
+smart bridger western Script is the best bridger western Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
